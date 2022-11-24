@@ -9,7 +9,7 @@
 
 - Estou estudando as áreas **Mecânica**
 
-- Me encontro pelo e-mail [eduardo.ricardo@escola.pr.gov.br](eduardo.ricardo@escola .pr.gov.br)
+- Me encontro pelo e-mail eduardo.ricardo@escola .pr.gov.br
 
 - Eu penso em **Evoluir minha aprendizagem na área de Mecânica**
 
